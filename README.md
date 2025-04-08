@@ -1,6 +1,15 @@
-## about me ୨୧
-- taph/vampstaff. i do not mind nicknames!
-- taph kin (fine w/ doubles)
-- forsaken/phighting/block tales
-- c*h/int/ships are O K ! ! !
-<br><br>  feel free to interact with me! please check out my other links! ^_^
+<div align="center">
+  
+###### pumpkin magic here, please! ^\_\^<br>
+
+<img src="https://magma.com/shared/UhudZ_RAyFK5P4lVf0rzfz" height=250>
+
+<div align="center">
+
+<sub>[twitter](https://twitter.com/vampstaff) ⯎ [rentry](https://rentry.co/eunoiabealdhild) ⯎ [atabook](https://dusetaph.atabook.org/)<sub>
+
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=dusetaph&color=grey&label=☾+admins&abbreviated=true) 
+
+<div align="center">
