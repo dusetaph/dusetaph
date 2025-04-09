@@ -6,7 +6,7 @@
 
 <div align="center">
 
-<sub>[twitter](https://twitter.com/vampstaff) ⯎ [rentry](https://rentry.co/eunoiabealdhild) ⯎ [atabook](https://dusetaph.atabook.org/)<sub>
+<sub>[twitter](https://twitter.com/vampstaff) ⯎ [rentry](https://rentry.co/taphkar) ⯎ [atabook](https://dusetaph.atabook.org/)<sub>
 
 <div align="center">
   
