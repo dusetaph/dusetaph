@@ -5,7 +5,8 @@
 <img src="https://magma.com/shared/UhudZ_RAyFK5P4lVf0rzfz" height=250>
 
 <div align="center">
-
+  
+taph kin ∙ dusekkar lover<br>
 <sub>[twitter](https://twitter.com/vampstaff) ⯎ [rentry](https://rentry.co/taphkar) ⯎ [atabook](https://dusetaph.atabook.org/)<sub>
 
 <div align="center">
