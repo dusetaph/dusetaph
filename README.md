@@ -7,7 +7,7 @@
 <div align="center">
   
 taph kin ∙ dusekkar lover<br>
-<sub>[twitter](https://twitter.com/vampstaff) ⯎ [rentry](https://rentry.co/taphkar) ⯎ [atabook](https://dusetaph.atabook.org/)<sub>
+<sub>[twitter](https://twitter.com/vampstaff) ⯎ [rentry](https://rentry.co/creamu) ⯎ [atabook](https://dusetaph.atabook.org/)<sub>
 
 <div align="center">
   
